@@ -1,1 +1,0 @@
-# india-runs-ai-challenge
